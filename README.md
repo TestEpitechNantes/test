@@ -2,7 +2,3 @@
 
 made with love !
 
-
-
-coucou ! bis
-
